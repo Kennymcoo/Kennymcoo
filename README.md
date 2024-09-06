@@ -1,5 +1,5 @@
 # 💫 About Me:
- I am Can Ata <br><br>New grad computer engineer<br><br>Makes websites, games and software products<br><br>Still learning new things<br><br> Loves leanring and music
+ I am Can Ata <br><br>New grad computer engineer<br><br>Makes websites, games and software products<br><br>Still learning new things
 
 
 ## 🌐 Socials:
